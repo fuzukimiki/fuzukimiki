@@ -12,3 +12,5 @@ i like characters and use the skins of characters when i've only consumed a smal
 * i use a ghost skin sometimes. people come up to me with roach and konig skins expecting me to know.. im sorry... i've only seen playthroughs of mwii and mwiii remastered. i don't know references. i don't know characters.
 
 those are the only examples i can think of
+
+if i have this on a vtuber skin it means i don't watch them much anymore but i still like their content. i won't understand specific and recent references
